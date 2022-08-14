@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kratikshuklaofficial@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1KaWCZms184EXbWW7ZY0shswpshx38Ppl/view?usp=sharing](https://drive.google.com/file/d/1KaWCZms184EXbWW7ZY0shswpshx38Ppl/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1Cv3y1hMrpohHZRBf15FNvYAwE-SNNIs2/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
